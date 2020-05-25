@@ -1,1 +1,1 @@
-Oliwia Śmietana 2Ic zadanie z RWD
+Oliwia Śmietana 2Ic RWD
